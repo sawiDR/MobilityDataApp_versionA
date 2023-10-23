@@ -2,4 +2,4 @@
 
 ‼️Read the document *installation.pdf*
 
-Link for the survey: https://forms.gle/iNMzuGDu9zLsDivi8
+Link for the survey: https://forms.gle/cmThoEUuR34g8LVV6
